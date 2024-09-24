@@ -7,7 +7,7 @@ Ready to raise your stakes and maximize your winnings on Fortune Tiger? Our excl
 
 Join us and turn your bets into wins. Click the link below and start your journey to success on Fortune Tiger!
 
-#### 👉 Start now!
+#### 👉[Join Us!](https://t.me/+Qyktc4vHKk01MmEx)
 ##
 ## 🧠 Features
 
